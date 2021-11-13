@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Trucerobert
-- 👀 I’m interested in tech and art
+- 👀 I’m interested in a lot of things 
 - 🌱 I’m currently learning different programming languages 
 - 💞️ I’m looking to collaborate on anything I've learned so far 
 - 📫 How to reach me;Twitter: _Trucerobert
