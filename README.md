@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @trucerobert
+- 👋 Hi, I’m @Trucerobert
 - 👀 I’m interested in a lot of things 
 - 🌱 I’m currently learning different programming languages 
 - 💞️ I’m looking to collaborate on anything I've learned so far 
